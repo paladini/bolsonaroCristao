@@ -11,6 +11,7 @@ O site [Bolsonaro Cristão](http://www.bolsonarocristao.com) apareceu em diversa
 - Catraca Livre: [site](https://catracalivre.com.br/geral/cidadania/indicacao/tumblr-reune-frases-polemicas-e-noticias-do-deputado-jair-bolsonaro/) | [facebook](https://www.facebook.com/CatracaLivre/posts/1026515557385455)
 - Revista Forum: [site](http://www.revistaforum.com.br/blog/2015/08/tumblr-bolsonaro-cristao-reune-frases-polemicas-do-deputado) | [facebook](https://www.facebook.com/forumrevista/posts/1014398108592354)
 - Brasil Post: [site](http://www.brasilpost.com.br/2015/08/24/bolsonaro-cristao-tumblr_n_8032196.html) | [facebook](https://www.facebook.com/braspost/posts/1084114478265472)
+- Pragmatismo Político: [site](http://www.pragmatismopolitico.com.br/2015/08/as-10-frases-mais-polemicas-de-jair-bolsonaro.html) | [facebook](https://www.facebook.com/PragmatismoPolitico/posts/1008414592523614)
 - [Quebrando o Tabu](https://www.facebook.com/quebrandootabu/posts/944599318929789)
 - [Carl Sagan Irônico](https://www.facebook.com/CarlSaganIronico/posts/954009724657715)
 - [Mas Já é Vandalismo](https://www.facebook.com/MasJaEVandalismo/posts/461668874005766)
